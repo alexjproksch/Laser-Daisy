@@ -1,1 +1,2 @@
 # Laser-Daisy
+My name is Alex I like sports but probably not your typical kind of sports. I like skiing, long distance biking, rock climbing and surfing. Some of these kinds of sports can be difficult to do since I live in Las Vegas Nevada. Appart from sports I love to code. I like the challenge it presents. Even though it can be tough at times, the feeling of success is one of the best in the world. So my advice to anyone wanting to code is don't give up and do a victory dance when you get it right. Celebrate it, you earned it!!!
